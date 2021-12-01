@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @rvfooty
+- 👀 I’m interested in all things web3, with a particular focus on blockchain technology
